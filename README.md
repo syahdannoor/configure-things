@@ -1,0 +1,1 @@
+catat, lupa, liat lagi
